@@ -1,0 +1,9 @@
+- Hi, I’m @PikhaRdo.
+- Student at fatec ourinhos-cybersecurity.
+- I'm studying how to program in python and in the future about servers, OS, cryptography and more!
+- For now i am not looking to collaborate in anything, just focusing in studying and grow as a dev and a better professional.
+- 📫 How to reach me:
+- email: rg2723949@gmail.com
+- linkedin:https://www.linkedin.com/in/ricardo-martins-gouveia-a76073266/
+- Discord:PikhaRdo#3646
+- Thanks for visiting my profile! see you space cowboy
