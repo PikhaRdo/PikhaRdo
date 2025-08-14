@@ -6,4 +6,4 @@
 - email: rg2723949@gmail.com
 - linkedin:https://www.linkedin.com/in/ricardo-martins-gouveia-a76073266/
 - Discord:PikhaRdo#3646
-- Thanks for visiting my profile! see you space cowboy
+- See you space cowboy...
